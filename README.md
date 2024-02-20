@@ -1,0 +1,2 @@
+# DanielNowckiZadanieDziedziczenie
+DanielNowckiZadanie
